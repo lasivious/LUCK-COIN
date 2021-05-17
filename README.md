@@ -1,0 +1,2 @@
+# LUCK-COIN
+New Token LUCK COIN 
